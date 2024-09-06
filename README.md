@@ -1,7 +1,6 @@
 ## Bem vindos ao meu perfil! ♡
 
-<!<--
-**ratodecozinha/ratodecozinha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://pin.it/3wWVyFhXr)
 
 Meu nome é Mariana Elisa
 
