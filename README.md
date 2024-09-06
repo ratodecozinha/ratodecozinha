@@ -1,6 +1,6 @@
 ## Bem vindos ao meu perfil! ♡
 
-![](https://pin.it/3wWVyFhXr)
+![](https://64.media.tumblr.com/bbd137eee389980e089b97c4a6b3ab1f/47214aa296dba679-8a/s400x220/c254d558f1c0d897cdd9d51bc21575ef45c9d4fa.gif)
 
 Meu nome é Mariana Elisa
 
